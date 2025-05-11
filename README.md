@@ -59,6 +59,7 @@ I bring a unique blend of financial expertise and people management, enabling ef
 ## 📫 Get in Touch
 
 - 📧 Email: [minatawfik9@gmail.com](mailto:minatawfik9@gmail.com)
+- 🌐 LinkedIn: [linkedin.com/in/minatawfik9](https://www.linkedin.com/in/minatawfik9/)
 - 📍 Location: Hawalli, Kuwait
 
 ---
